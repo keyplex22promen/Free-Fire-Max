@@ -235,4 +235,4 @@ Free Fire Max is a full free version with all features and updates included. Enj
 Ready to experience the ultimate battle royale? Download Free Fire Max now and join the fight for survival!
 
 ---
-**Last updated:** 2026-10-10 21:30:23 UTC
+**Last updated:** 2026-10-11 00:47:37 UTC
